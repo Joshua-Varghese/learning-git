@@ -2,4 +2,6 @@
 
 Everything is easy if you are willing to put in the hardwork.
 
-Keep going 
+Keep going i am trying to make a conflict.
+delte this too
+delete me mr
