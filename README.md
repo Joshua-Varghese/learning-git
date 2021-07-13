@@ -4,4 +4,3 @@ Everything is easy if you are willing to put in the hardwork.
 
 Keep going i am tring to make confilicts
 
-shit sit shit this is gonna get deleted
