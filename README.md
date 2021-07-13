@@ -1,7 +1,3 @@
-#This is a repository for learning git. Thank you !
-#git is easy !!
+#Repo of Joshua to learn Git
 
-#just made a new branch, hope this works hahah
-
-#hi hi
-
+Everything is easy if you are willing to put in the hardwork
